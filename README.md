@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @arcticmainecoon
-- 👀 I’m interested in Gunspot.com
